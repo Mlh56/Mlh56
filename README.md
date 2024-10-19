@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Maira
+- 👀 I’m interested in Datas science, languages marketing digital.
+- 🌱 I’m currently learning languages, analitysis datas e SEO tools.
+- 📫 How to reach me by e-mail eduquendo10@gmail.com
